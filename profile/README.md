@@ -1,8 +1,8 @@
 The fall season is coming to a close, but there's time for one more major cross country race — the most important of the year. The 2024 NCAA cross country championships are here, with the University of Wisconsin-Madison hosting the event. There are 31 teams participating in both the men's and women's championships. Each team consists of seven people.
 
-Live ::: https://bestones.icu/ncaacrosscountry/
+Live ::: https://bestones.icu/ncaacross/
 
-Live ::: https://bestones.icu/ncaacrosscountry/
+Live ::: https://bestones.icu/ncaacross/
 
 There are also 38 individual runners in both the men's and women's championships. All runners who qualified for the individual tournament finished in the top 25 in their region.
 
